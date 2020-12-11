@@ -8,6 +8,22 @@ This years christmas will look different than ever before. We have to stay at ho
 
 - [Zoom](https://zoom.us/) - Online conferencing tool
 
+## 🎮 Online Board Games
+
+**Play games on christmas with your family**
+
+## 🏞 Photo Sharing Solutions
+
+**Share some memories with your family**
+
+## 🎵 Playlists and everything music related
+
+\*Get everyone in the cristmas mood with some music\*\*
+
+## 😋 Ideas for program points
+
+**What you could do with you family members in the call**
+
 ## ⭐️ Contribute
 
 **Help to make this years christmas special**
