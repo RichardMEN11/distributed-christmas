@@ -13,6 +13,8 @@ This years christmas will look different than ever before. We have to stay at ho
 
 **Make the design of your christmas party**
 
+-[3D Christmas Decoration](https://icons8.com/l/christmas-3d/?ref=producthunt) - Deck the halls with 3D characters and ornaments
+
 ## 🎮 Online Board Games
 
 **Play games on christmas with your family**
@@ -23,7 +25,15 @@ This years christmas will look different than ever before. We have to stay at ho
 
 ## 🎵 Playlists and everything music related
 
-\*Get everyone in the cristmas mood with some music\*\*
+**Get everyone in the cristmas mood with some music**
+
+## 📽 Video and Movies
+
+**Videos and movies to watch with your family on christmas eve**
+
+## 👶🏻 For the kids
+
+**Ideas for the kids**
 
 ## 😋 Ideas for program points
 
