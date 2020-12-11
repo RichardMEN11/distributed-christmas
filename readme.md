@@ -18,7 +18,7 @@ This years christmas will look different than ever before. We have to stay at ho
 
 ## 🎵 Playlists and everything music related
 
-\*Get everyone in the cristmas mood with some music\*\*
+**Get everyone in the cristmas mood with some music**
 
 ## 😋 Ideas for program points
 
