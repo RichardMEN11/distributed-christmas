@@ -6,7 +6,12 @@ This years christmas will look different than ever before. We have to stay at ho
 
 **Tools to stay in touch with your family**
 
+- [KnitPlaces](https://knitplaces.com/) - Online Meeting Tool
 - [Zoom](https://zoom.us/) - Online conferencing tool
+
+## 🪄 Icons and Designs
+
+**Make the design of your christmas party**
 
 ## 🎮 Online Board Games
 
