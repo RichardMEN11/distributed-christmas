@@ -53,7 +53,7 @@ This years christmas will look different than ever before. We have to stay at ho
 
 ## 🛑 Other
 
-** Everything that is not in a category and could be useful**
+**Everything that is not in a category and could be useful**
 
 - [Drawnames](https://www.drawnames.de/) - Wishlist tool
 - [Miro](https://miro.com/) - Online Whiteboard
